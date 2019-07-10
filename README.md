@@ -1,7 +1,7 @@
 # hello-world
 Years run like a single moment.
 
-Cause. Family. Memories.
+Affairs. Family. Memories.
 
 And the place is near the subway,
 
